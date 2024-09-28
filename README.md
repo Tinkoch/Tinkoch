@@ -1,0 +1,2 @@
+# christiana-tinkorang
+About me :) 
